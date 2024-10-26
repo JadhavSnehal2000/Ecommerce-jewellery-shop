@@ -7,3 +7,7 @@
 <img src="https://github.com/user-attachments/assets/7a582106-a82e-4c46-9fbc-a106a780e049" alt="" width="50%">
 
 
+![Screenshot 2024-10-26 161037](https://github.com/user-attachments/assets/e2c0b6e2-5436-4873-b0c4-076c71048063)
+![Screenshot 2024-10-26 160941](https://github.com/user-attachments/assets/a451907f-bb14-4ce4-9ed1-eac13f158916)
+![Screenshot 2024-10-26 160926](https://github.com/user-attachments/assets/e38c6e57-67ac-4844-9608-e1039d1f4ffe)
+![Screenshot 2024-10-26 160833](https://github.com/user-attachments/assets/b15c8655-b065-455f-821c-82805a638fd0)
